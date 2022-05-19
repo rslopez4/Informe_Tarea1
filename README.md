@@ -215,7 +215,7 @@ Sección 2-7 Mediciones de circuitos básicos
 Un multímetro de 4 ½ dígitos mostrará hasta 19.999 recuentos de resolución
 
 
-
+https://uespe-my.sharepoint.com/personal/rslopez4_espe_edu_ec/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Frslopez4%5Fespe%5Fedu%5Fec%2FDocuments%2FGrabaciones%2FReuni%C3%B3n%20con%20ROY%20STEVEN%20LOPEZ%20LEON%2D20220519%5F112102%2DGrabaci%C3%B3n%20de%20la%20reuni%C3%B3n%2Emp4&parent=%2Fpersonal%2Frslopez4%5Fespe%5Fedu%5Fec%2FDocuments%2FGrabaciones&ga=1
 
 
 
